@@ -45,3 +45,16 @@ Other features-
 > Encourage individuals and businesses to purchase natural disaster insurance.
 
 ## PPT Link- [Canva Link](https://www.canva.com/design/DAFzN0XOUec/LHbNU3IhoHkSFEZGiG4VMA/edit?utm_content=DAFzN0XOUec&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+## Team Details-
+
+### Team Name- Allies
+### Team Members-
+
+Sukrit Kaur Oberoi
+>
+Preet Gupta
+>
+Akshat Srivastava
+>
+Sneha Aggarwal
